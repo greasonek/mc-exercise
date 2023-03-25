@@ -1,3 +1,4 @@
+
 ## FRESH PRICE OF BEL-AIR LYRICS
 
 Now, this is a story all about how
@@ -39,3 +40,4 @@ And I yelled to the cabbie, "Yo holmes, smell ya later"
 I looked at my kingdom
 I was finally there
 To sit on my throne as the prince of Bel-Air
+
