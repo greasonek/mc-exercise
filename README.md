@@ -2,4 +2,4 @@
 
 ## Hello Wolrd! My name is Bob!
 
-### This is a conflict
+### This is a conflict!
